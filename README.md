@@ -1,2 +1,2 @@
 ![image](https://i.postimg.cc/T2Sn4ksk/129-Sem-T-tulo-20250710170239.png)
-[<img src="[https://i.postimg.cc/xTh1sFJL/11-Sem-T-tulo-20250726114910.png]">]((https://rentry.co/angustia))
+[![Alt text]([https://i.postimg.cc/Dy2YcTBz/2c284788d6b997b96c2ae47433bc8c15ea2e7917da39a3ee5e6b4b0d3255bfef95601890afd80709da39a3ee5e6b4b0d3255.gif])](https://rentry.co/angustia)

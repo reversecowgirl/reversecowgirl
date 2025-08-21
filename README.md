@@ -25,6 +25,8 @@
 
 > **dont flirt w me unless ur a close friend!! close friends may only do it occassionally as im very loyal 2 my bf ( ´ ▽ ` ).｡ｏ♡**
 
+> IM A NERD!! A DORK INDEED!! im a malware tester and i use virtualbox! if u have any malware recommendations 4 me im always open for requests!!
+
 # SOLARS' WHATEVER THESE ARESIES!
 
 <img width="97" height="57" alt="Image" src="https://github.com/user-attachments/assets/514ec8ba-07d2-4112-8e8a-9abdf9d1de1f" />

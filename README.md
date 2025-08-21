@@ -5,4 +5,8 @@
 [![h](https://github.com/user-attachments/assets/c373abcb-855b-4f75-b3d6-f807704d769e)](https://missionary.atabook.org)
 </p>
 
+# <center>HELLO HELLOS NUTSACKS!</center>
 
+<center>BEFORE U INT!</center>
+- i make slight nsfw jokes, if im too comfy and go overboard, DO TELL IF U DONT LIKE IT!
+- 

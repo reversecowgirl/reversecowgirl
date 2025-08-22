@@ -92,8 +92,11 @@
 ![h](https://files.catbox.moe/l2fnyz.gif)
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d8498a14-2bab-4b1a-bd0a-3eee7ef6694d" />
 
-MORE SOON!
+<center>MORE SOON!</center>
 
 </p>
 
+<img width="4000" height="4000" alt="image" src="https://github.com/user-attachments/assets/0b084d17-911f-4eda-85d7-020450b2ecc8" />
+
+<center>big solar -w-</center>
 

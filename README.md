@@ -27,6 +27,8 @@
 
 > **IM A NERD!! A DORK INDEED!! im a malware tester and i use virtualbox! if u have any malware recommendations 4 me im always open for requests!!**
 
+> **the character in my pfp and pretty much everywhere IS MY SONA AND OC SOLARIS! the difference is that the sona has glasses!!**
+
 # SOLARS' WHATEVER THESE ARESIES!
 
 <img width="97" height="57" alt="Image" src="https://github.com/user-attachments/assets/514ec8ba-07d2-4112-8e8a-9abdf9d1de1f" />

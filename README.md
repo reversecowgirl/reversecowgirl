@@ -87,6 +87,11 @@
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d81b30ba-627d-40f0-bc0b-61e0fb644be9" />
 <img width="99" height="54" alt="image" src="https://github.com/user-attachments/assets/66191092-e27e-4aa9-a93c-77661bfb39ba" />
 ![h](https://64.media.tumblr.com/c564bb29638900f42eb7ea9252601409/f386e6fb69bea876-f1/s100x200/4e93b773716f4f4c037bd863b5572faf713ae1e2.gifv)
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/bfc2070d-30ca-468f-b55e-e7321a08aa9c" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/9b48f498-ba2d-4dba-bdf0-5dfb5f373531" />
+![h](https://files.catbox.moe/l2fnyz.gif)
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d8498a14-2bab-4b1a-bd0a-3eee7ef6694d" />
+
 MORE SOON!
 
 </p>

@@ -23,7 +23,7 @@
 
 > **dont hesitate 2 c + h or whisper me!! im a very friendly and social geek, always open for friendships!!**
 
-> **dont flirt w me unless ur a close friend!! close friends may only do it occassionally as im very loyal 2 my bf ( ´ ▽ ` ).｡ｏ♡**
+> **dont flirt w me unless ur a close friend!! close friends may only do it occassionally as im currently not mentally well when it comes to love stuff**
 
 > **IM A NERD!! A DORK INDEED!! im a malware tester and i use virtualbox! if u have any malware recommendations 4 me im always open for requests!!**
 

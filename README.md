@@ -1,5 +1,9 @@
-                       
-                       
+<p align="center">
+  <img src=https://komarev.com/ghpvc/?username=reversecowgirl&color=00ff8c&label=gimps />
+</p>
+
+ 
+
 <p align="center">
   <img src="https://i.postimg.cc/T2Sn4ksk/129-Sem-T-tulo-20250710170239.png" />
 </p>

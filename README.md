@@ -1,5 +1,5 @@
 <p align="center">
-  <img src=https://komarev.com/ghpvc/?username=reversecowgirl&color=00ff8c&label=gimps />
+  <img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Freversecowgirl&label=GIMPS!&countColor=%2337d67a&style=plastic" />
 </p>
 
  

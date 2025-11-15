@@ -1,27 +1,19 @@
 <p align="center">
-  <img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Freversecowgirl&label=GIMPS!&countColor=%2337d67a&style=plastic" />
+  <img src="https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Freversecowgirl&label=fanpals!&labelColor=%23000000&countColor=%23ca2a31&style=plastic" />
 </p>
 
  
 
 <p align="center">
-  <img src="https://i.postimg.cc/T2Sn4ksk/129-Sem-T-tulo-20250710170239.png" />
+  <img src="https://i.postimg.cc/ydG5x2z2/17-Sem-Titulo-20251115003715.png" />
 </p>
 
  
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/6efc4b89-0120-4000-809d-e28c87b98904" />
+  <img src="https://github.com/user-attachments/assets/5fafcaca-948f-42e5-b42b-79a70d81aa84" />
 </p>
 
- 
 
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/dd2dec89-16f3-4625-abc8-ee008006c99f" />
-</p>
 
- 
-
-                          [![h](https://github.com/user-attachments/assets/9777e09a-c030-4748-ada5-c71121b945b0)](https://rentry.co/angustia)
-[![h](https://github.com/user-attachments/assets/0f7bba3e-d19b-40b3-a1b3-4c2731329645)](https://reversecowgirl.straw.page)
-[![h](https://github.com/user-attachments/assets/c373abcb-855b-4f75-b3d6-f807704d769e)](https://missionary.atabook.org)
+ 

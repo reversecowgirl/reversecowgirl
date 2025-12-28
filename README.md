@@ -4,8 +4,8 @@
 
  
 
-making more banners
-want a banner? contact me via discord ; solarizxo
+<center>making more banners
+want a banner? contact me via discord ; solarizxo</center>
 
 
 

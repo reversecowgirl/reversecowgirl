@@ -4,8 +4,14 @@
 
  
 
-<p align="center">making more banners
-want a banner? contact me via discord ; solarizxo</p>
+<p align="center">failure           pls int            lol</p>
+
+
+
+
+
+<p align="center"></p>
+
 
 
 
